@@ -12,3 +12,11 @@ EDP二轮车队日记
 
 ![http://img2.codoon.com/suPGD2FCdK_0.png](http://img2.codoon.com/suPGD2FCdK_0.png)
 ![http://ww3.sinaimg.cn/large/6bb68728jw1dvf5mifuyrj.jpg](http://ww3.sinaimg.cn/large/6bb68728jw1dvf5mifuyrj.jpg)
+
+导演上场了 [link](http://weibo.com/1807124264/yuRXi7V2v)
+
+![http://ww2.sinaimg.cn/large/6bb68728jw1dvf3eel81sj.jpg](http://ww2.sinaimg.cn/large/6bb68728jw1dvf3eel81sj.jpg)
+
+苏千 新彩灯
+
+![http://ww4.sinaimg.cn/large/6bb68728jw1dvf4m0uywrj.jpg](http://ww4.sinaimg.cn/large/6bb68728jw1dvf4m0uywrj.jpg)
