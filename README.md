@@ -20,3 +20,10 @@ EDP二轮车队日记
 苏千 新彩灯
 
 ![http://ww4.sinaimg.cn/large/6bb68728jw1dvf4m0uywrj.jpg](http://ww4.sinaimg.cn/large/6bb68728jw1dvf4m0uywrj.jpg)
+
+### 7.28 城北 32KM
+
+* [米尔记录](http://www.codoon.com/gps_sports/route_detail?route_id=884ef5e8-d8a7-11e1-9bf6-001517875910&feed_id=0aad6f5e-6995-49ee-8877-fde0ee9c683c)
+
+![http://ww2.sinaimg.cn/large/6bb68728jw1dvcs7phhtgj.jpg](http://ww2.sinaimg.cn/large/6bb68728jw1dvcs7phhtgj.jpg)
+[http://weibo.com/1807124264/yuz737BaF](http://weibo.com/1807124264/yuz737BaF)
